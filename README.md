@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Makakof
-- 👀 I’m interested in learning to make code
+- 👀 I’m interested in learning to make a good code
 - 🌱 I’m currently learning in UFMS
 - 💞️ I’m looking to collaborate on my friends and my future!
 - 📫 How to reach me? Haha, I come to you.
